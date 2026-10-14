@@ -3,7 +3,7 @@
 <p align="center"> 
         &nbsp;&nbsp;
 
-⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀   ⠀  ✎ᝰ⠀[ATABOOK](https://maggydonut.atabook.org/) &nbsp; [STRAWPAGE](https://bluarsh.straw.page) &nbsp; [STEAM](https://steamcommunity.com/id/fatpuzo/)     ᝰ.ᐟ 
+⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀   ⠀  ✎ᝰ⠀[ATABOOK](https://maggydonut.atabook.org/) &nbsp; [STRAWPAGE](https://donutgirl.straw.page) &nbsp; [STEAM](https://steamcommunity.com/id/fatpuzo/)     ᝰ.ᐟ 
 
   &nbsp;&nbsp;
 
